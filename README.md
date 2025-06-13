@@ -1,6 +1,8 @@
-![1000138700](https://github.com/user-attachments/assets/975952b7-343d-4c45-9b9a-3e1376eb87ec)
+![1000138965](https://github.com/user-attachments/assets/a58b2fb6-1c7b-4771-8f42-ff71bc072b83)
 
-![1000138696](https://github.com/user-attachments/assets/de4febf8-78af-4d79-80d0-14cec09bceb9)
+
+![1000138964](https://github.com/user-attachments/assets/fe62ca1f-6783-463e-9832-da6df1e4c9ea)
+
 
 ‌‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌    ‌ [𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴](https://deanspn.straw.page/)
 ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌ [𝙰𝚃𝙰𝙱𝙾𝙾𝙺](https://deanspn.atabook.org) ‌  ‌  ‌  ‌  ‌  ‌  ‌ > 𖥦 <
