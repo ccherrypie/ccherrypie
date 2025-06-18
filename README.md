@@ -1,7 +1,9 @@
-![1000138965](https://github.com/user-attachments/assets/a58b2fb6-1c7b-4771-8f42-ff71bc072b83)
+![Untitled58 (1)](https://github.com/user-attachments/assets/8335754c-f01a-4c60-ba7d-5daa223419fe)
 
 
-![1000138964](https://github.com/user-attachments/assets/fe62ca1f-6783-463e-9832-da6df1e4c9ea)
+
+![1000140059](https://github.com/user-attachments/assets/281fd04c-a7fa-47af-ade9-00dd185a0cf3)
+
 
 
 ‌‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌    ‌ [𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴](https://deanspn.straw.page/)
